@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ElbAl05
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning HTML and CSS
+- 📫 How to reach me aleksandreelb@gmail.com or just dm me I'll try and answer your messages.
